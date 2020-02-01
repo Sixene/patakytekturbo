@@ -1,2 +1,2 @@
 # patakytekturbo
-# thanks to all my friends
+ thanks to all my friends
